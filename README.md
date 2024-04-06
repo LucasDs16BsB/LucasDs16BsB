@@ -14,7 +14,7 @@
  
 <br>
  
-###  me segue nas redes abaixo!
+###  Me segue nas redes abaixo!
  
 <div>
 
